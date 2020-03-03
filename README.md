@@ -17,4 +17,4 @@ I heard my friends talking about it and got interested.
 I'm interested in coding.
 
 ### What do you want to work on when you join this club and why?
-Nothing in particular. Just want to develop my skills.
+Nothing in particular. I just want to develop my skills.
